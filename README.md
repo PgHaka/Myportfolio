@@ -59,4 +59,4 @@ They reflect my approach to business problems: combining hands-on operational ex
 
 **Location:** Currently in Latvia | Looking to relocate within Europe, preferably to Poland, Cyprus or Malta.
 
-**Opportunities:** iGaming Operations, Payments, Management, Business Analysis and Automation.
+**Opportunities:** Logistics, iGaming Operations, Payments, Management, Business Analysis and Automation.
